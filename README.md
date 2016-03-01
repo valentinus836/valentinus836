@@ -1,7 +1,7 @@
 # valentinus836
 
 # GRATULÁLOK!
-Jó helyen jársz :)
+Ha ctk 9000511396-ot keresed, jó helyen jársz :)
 
 Ez itt valentinus836 elérhetősége:
 
